@@ -1,4 +1,4 @@
 # THE PRO
 
 *Subscribe to THE PRO!!!*
-https://youtube.com/c/blazerhm
+https://www.youtube.com/@THEPRO_InThe-beginning
